@@ -11,8 +11,8 @@ Noah este ultima persoana in care ar trebui sa se intragosteasca Mia. Cu toate a
 * sportiva
 
 
-
-
-
 > Totul va deveni clar, numai atunci cand te uiti in inima ta.
 > Cand privesti in exterior, visezi. Cand privesti in interior, te trezesti.
+
+
+<img src="https://yulicereads.files.wordpress.com/2017/08/cropped-banner-wordpress-neu.jpg"/>
